@@ -8,6 +8,14 @@
 
 ![image](https://raw.githubusercontent.com/linhsjoseph/gc-helper/master/8f4ZO5hjzF.png)
 
+### LineID
+
+@jqr9473w
+
+https://line.me/R/ti/p/%40jqr9473w
+
+<a href="https://line.me/R/ti/p/%40jqr9473w"><img height="36" border="0" alt="加入好友" src="https://scdn.line-apps.com/n/line_add_friends/btn/zh-Hant.png"></a>
+
 ### 時間關鍵字
 
 6/3
